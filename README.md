@@ -1,1 +1,1 @@
-# Bojidar-Tsankov_skriptovi-ezici
+# Bojidar-Tsankov_ vuvedenie-skriptovi-ezici
